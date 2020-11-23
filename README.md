@@ -8,7 +8,7 @@ Every save is **hacked**, and not authentic. So we aren't enslaving people to ge
 Or are we...
 
 Reminder, we **ARE** trying to ruin the game. And we **DO NOT** have some useless excuse for hacking it.
-Of course, Orneil fully condones hacking, and has added two **shadow achievements** for hackers exclusively. 
+Of course, Orteil fully condones hacking, and has added two **shadow achievements** for hackers exclusively. 
 
 **Dungeon Achievements** are unavailable, so if a save has them, **it is hacked**
 Todaloo
