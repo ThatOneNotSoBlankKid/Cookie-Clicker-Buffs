@@ -14,4 +14,8 @@ Of course, Orteil fully condones hacking, and has added two **shadow achievement
 And obviously the **shadow achievement**, known as **Cheated Cookies Taste Awful** indicates a hacked account.
 As the achievement is only available through hacking in cookies. No matter **how many**
 
-                                             **TODALOO**
+                                        Enjoy the hacked saves.
+                                        If anything happens to them
+                                        make sure to report it in
+                                        an issue. 
+                                        todaloo
