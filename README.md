@@ -11,4 +11,7 @@ Reminder, we **ARE** trying to ruin the game. And we **DO NOT** have some useles
 Of course, Orteil fully condones hacking, and has added two **shadow achievements** for hackers exclusively. 
 
 **Dungeon Achievements** are unavailable, so if a save has them, **it is hacked**
-Todaloo
+And obviously the **shadow achievement**, known as **Cheated Cookies Taste Awful** indicates a hacked account.
+As the achievement is only available through hacking in cookies. No matter **how many**
+
+                                             **TODALOO**
