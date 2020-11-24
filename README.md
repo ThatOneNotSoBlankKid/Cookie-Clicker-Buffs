@@ -17,7 +17,20 @@ As the achievement is only available through hacking in cookies. No matter **how
 Buffs tagged with **TODO** are not done yet. It takes me less than an hour to hack each save.
 So if you see an unfinished buff, won't take long!
 
-Todaloo
+### "How do I hack Cookie Clicker?"
+You can do anything, from **save editors** (**Coderpatsy** is a very reliable **save editor**) to screwing with code.
+I do literally **anything** in order to get something done quick.
+On **bad days** I use a **save editor**, and on **good days** I use other means.
+
+### So you could consider it "Not really hacking"
+But it's still cheating... so, cheated saves if you will.
+That's all I have to say.
+
+So
+of course
+
+### Todaloo
+
 
                                         Enjoy the hacked saves.
                                         If anything happens to them
