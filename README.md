@@ -24,6 +24,21 @@ On **bad days** I use a **save editor**, and on **good days** I use other means.
 
 ### So you could consider it "Not really hacking"
 But it's still cheating... so, cheated saves if you will.
+
+### If a buff is TODO for too long
+As most of you know, when something is tagged as **TODO**,
+It is unfinished.
+
+And that's the same with **buffs**
+But hacking them takes under **24 hours**.
+But see the **wiki** for more info, because sometimes that's not the case.
+
+
+
+
+
+
+
 That's all I have to say.
 
 So
