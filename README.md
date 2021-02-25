@@ -38,13 +38,15 @@ But see the **wiki** for more info, because sometimes that's not the case.
 
 
 
+**By the way
+This is the **OFFICIAL**
+Alternate account of **ThatOneBlankKid**
 
-That's all I have to say.
+I no longer have access to the original **ThatOneBlankKid** account.
 
-So
-of course
+So as always
 
-### Todaloo
+***Todaloo***
 
 
                                         Enjoy the hacked saves.
